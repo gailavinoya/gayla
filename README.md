@@ -1,3 +1,6 @@
 # DEMO
 
 SUREE:)
+AMBAHO NI JAMEL:(
+JAMAE LANG SA KALAM 
+hhahahah
